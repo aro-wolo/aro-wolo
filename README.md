@@ -19,5 +19,5 @@ Join the **ProcessGuy** community and take your tech career to the next level! ð
 
 ## ðŸ“« Let's Connect!  
 - LinkTree: [@processguy](https://linktr.ee/aro.wolo)   
-- WhatsApp: [@aro-wolo]([https://github.com/aro-wolo](https://whatsapp.com/channel/0029Va4iOjDLCoX4kYJ09X3v))  
+- WhatsApp: [@aro-wolo](https://whatsapp.com/channel/0029Va4iOjDLCoX4kYJ09X3v)
 - ProcessGuy: [@youtube](https://youtube.com/@processguy) [@tiktok](https://youtube.com/@process.guy)  

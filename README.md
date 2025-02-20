@@ -1,6 +1,4 @@
-# Hi, I'm Aro Wolo! 👋  
-
-🚀 Software Engineer & Tech Mentor 
+# 🚀 Software Engineer & Tech Mentor 
 
 I specialize in **software development**, building scalable applications with **Go, Python, Flutter, React, and more**. Apart from my tech career, I run **ProcessGuy Academy**, where I teach, train, and mentor aspiring developers.  
 
